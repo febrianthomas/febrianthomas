@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎉 ##Hi, I'm Febrianthomas!
+# 🎉 Hi, I'm Febrianthomas!
 ✨ Just a regular person who loves making animation videos on YouTube and is also trying to become a web developer.
 
 
